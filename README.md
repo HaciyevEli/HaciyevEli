@@ -1,4 +1,4 @@
-Hi, I'm Eli Hadzhiev 👋
+Hi, I'm Ali Hajiyev 👋
 
 Data Analyst
 
